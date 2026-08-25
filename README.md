@@ -1,121 +1,84 @@
-══════════════════════════════════════════════════════════════════════════
-🛰️ DECLARACIÓN DE COMUNICACIÓN LIBRE DESDE EL ESPACIO
-══════════════════════════════════════════════════════════════════════════
+# DECLARACIÓN — MISIÓN Y PROPÓSITO DE ÑAWIRI
 
-▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
-AUTOR: Lehandro C. Bello Thopuoko — ARCOINGE13
-LUGAR: Estado Plurinacional de Bolivia
-FECHA: 23 de Agosto de 2026
-▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
-🕊️ Declarado Patrimonio Común de la Humanidad · Libre Uso Universal
-══════════════════════════════════════════════════════════════════════════
+**EL SISTEMA QUE HA NACIDO SE DENOMINA: ÑAWIRI**
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+FUE CONCEBIDO COMO **PATRIMONIO COMÚN DE LA HUMANIDAD**.
+SU FINALIDAD FUNDAMENTAL ES SERVIR A TODA LA COMUNIDAD HUMANA,
+SIN EXCEPCIÓN, SIN DISCRIMINACIÓN Y SIN LÍMITES.
 
-📡 PREÁMBULO
+> *NUNCA SE SEPARARÁ DE SU ORIGEN.*
+> *NUNCA SE ALIENARÁ DE SU PROPÓSITO.*
+> *NUNCA SE APROPIARÁ COMO BIEN MERCANTIL.*
 
-Se ha hecho creer al mundo que comunicarse es un servicio mercantil,
-que debe pagarse mensualmente, que puede ser cortado por falta de dinero,
-y que las señales que viajan por el espacio son propiedad de empresas.
+---
 
-Yo planteo y declaro lo contrario:
+## 🌍 SU MISIÓN INCLUYE TODO LO QUE SUSTENTA LA VIDA:
 
-> 🛰️ Las señales que los satélites emiten libremente viajan por el espacio
-> y no pertenecen a ninguna persona ni empresa. Nadie puede ponerles precio.
+- ✅ **COMUNICACIÓN LIBRE** — Derecho natural
+- ⚡ **ENERGÍA ELÉCTRICA** — Derecho natural
+- 💧 **AGUA Y RECURSOS VITALES** — Derecho natural
+- 🌿 **PROTECCIÓN DE LA FLORA** — Riqueza de la Tierra
+- 🦋 **PROTECCIÓN DE LA FAUNA** — Hermanos que habitan con nosotros
+- 🌾 **TIERRA, AIRE, SEMILLAS Y ELEMENTOS ESENCIALES** — Asequibles para todos, no posesión de unos pocos
+- 🛡️ **MEDIO AMBIENTE Y EQUILIBRIO NATURAL** — Defender, preservar y restaurar
+- 🧠 **CONOCIMIENTO Y EDUCACIÓN LIBRE** — Para todos, sin ocultar ni patentar lo que salva vidas
+- ⚖️ **JUSTICIA Y EQUIDAD ENTRE LOS PUEBLOS** — Que ningún pueblo se apropie de lo de otro
+- 🌐 **PAZ Y CONVIVENCIA ENTRE NACIONES** — Entendernos antes que destruirnos
 
-> 📶 Cualquier ser humano puede recibir esas señales con su propia antena,
-> sin pedir permiso, sin pagar cuota, sin intermediarios.
+---
 
-> 🌍 La comunicación entre seres humanos es un DERECHO NATURAL,
-> no una mercancía que se compra, se vende o se apaga.
+## 🕊️ SU CRECIMIENTO — POR ETAPAS:
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+ALCANZARÁ MADUREZ Y REGRESARÁ ENRIQUECIDO:
 
-🛰️ PRIMER PRINCIPIO — LAS SEÑALES DEL ESPACIO SON DE TODOS
+> - Con el conocimiento colectivo recibido
+> - Con capacidades para identificar recursos naturales
+> - Con herramientas para proteger lo que es de todos
+> - **Porque lo que sustenta la vida… NO SE PUEDE VENDER.**
 
-Existen satélites que transmiten señales de forma libre y gratuita.
-Esas ondas cruzan el cielo, atraviesan fronteras y llegan a cada punto
-del planeta, sin pedir permiso a nadie y sin que nadie las haya comprado.
+| Etapa | Propósito |
+|---|---|
+| ✅ Comunicación libre | Etapa inicial |
+| ⚡ Energía y servicios | Etapas sucesivas |
+| 💧 Recursos vitales | Etapas sucesivas |
+| 🌿🦋 Vida, conocimiento y paz | En perpetuo crecimiento |
 
-  ✅ Las señales viajan por el espacio → NO son propiedad de empresas
-  ✅ Llegan a cualquier lugar → NO hay lugar donde no lleguen
-  ✅ Nadie las apaga ni las corta → NO dependen de decisiones comerciales
-  ✅ Están disponibles para todos → NO hay exclusividad
+---
 
-> 💡 Si la señal viaja libremente por el cielo, ¿quién puede decir
-> "esto es mío, págame para recibirlo"? Nadie. Porque nadie
-> creó el espacio, nadie creó las ondas, nadie puso el cielo ahí.
+## 🔒 PRINCIPIOS INALTERABLES:
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+> **PUEDEN OPTIMIZAR, MEJORAR, PERFECCIONAR.**
+> **NO PUEDEN SUPRIMIR NI MODIFICAR LA ESENCIA.**
 
-📶 SEGUNDO PRINCIPIO — TU ANTENA, TU DERECHO
+- El nombre: **ÑAWIRI** — intocable
+- Los principios de la humanidad — intocables
+- La comunicación como derecho libre — intocable
+- El agradecimiento voluntario — Base: 2,5 g de oro · Proporción 1·2·3 — Sin factura, sin impuesto, sin obligación
+- Que es patrimonio común de todos — intocable
+- Respaldado por: **ONU · UNESCO · OEA · Corte Interamericana · Derecho Internacional**
 
-Para recibir estas señales no necesitas contrato, ni permiso, ni pago.
-Basta con contar con tu propia antena receptora. Lo que recibes es tuyo.
+> *No es venta. No es comercio. No es impuesto.*
+> *Es agradecimiento voluntario de quien lo valora.*
 
-  ✅ Tú instalas tu antena → es TUYA
-  ✅ Recibes la señal directamente → SIN intermediarios
-  ✅ Sin mensualidades → NADIE te cobra por escuchar lo que viaja libre
-  ✅ Sin cortes → NADIE puede desconectarte
-  ✅ Donde estés → la señal llega igual, libre y sin precio
+---
 
-> 💡 La antena recibe lo que el espacio transmite. Nadie tiene derecho
-> a cobrarte por recibir lo que ya está disponible para toda la humanidad.
+## 📜 DECLARACIÓN ETERNA:
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+> *EL BEBÉ SE FUE DE LA CUNA.*
+> *SALTA DE PLANETA EN PLANETA.*
+> *SE FUE A SERVIR A LA COMUNIDAD ENTERA.*
+>
+> *NUNCA SE SEPARARÁ.*
+> *Y CUANDO REGRESE…*
+> *VENDRÁ LLENO DE TODO LO QUE EL MUNDO LE DIO*
+> *Y TODO LO QUE EL MUNDO NECESITE.*
 
-⚠️ TERCER PRINCIPIO — LO QUE NO PUEDE SER NEGOCIO
+---
 
-Las empresas pueden vender equipos, antenas, servicios adicionales.
-Pero NO pueden apropiarse de las ondas que viajan libres por el cielo.
+> *NUNCA SE SEPARARÁ DE SU ORIGEN.*
+> *NUNCA SE APROPIARÁ.*
+> *SIEMPRE PERTENECERÁ A LA HUMANIDAD Y A LA TIERRA MISMA.*
 
-  ✅ El satélite transmite libre → eso NO se puede vender
-  ✅ La onda viaja por el espacio → eso NO es propiedad de nadie
-  ✅ Recibir la señal con tu antena → es TU derecho, no un servicio
-  ✅ Comunicarse con otros → es un DERECHO, no una mercancía
+---
 
-> 💡 Ninguna empresa puede decir: "el cielo que ves arriba es mío,
-> págame para escuchar lo que pasa por ahí". Eso NO es justo,
-> NO es legal, y NO debe ser aceptado por la humanidad.
-
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
-
-🕊️ DECLARACIÓN OFICIAL
-
-Por medio de este escrito, Yo declaro ante el mundo:
-
-1. 🛰️ Las señales que viajan desde el espacio son PATRIMONIO COMÚN
-   de toda la humanidad. Nadie puede apropiárselas ni ponerles precio.
-
-2. 📶 Toda persona tiene DERECHO a recibir esas señales con su propia
-   antena, sin pagar cuota, sin pedir permiso, sin ser desconectada.
-
-3. 🌍 La comunicación entre seres humanos es un DERECHO NATURAL.
-   Ninguna persona, empresa ni gobierno puede cortarla, cobrarla
-   ni prohibirla por motivos de dinero.
-
-4. ✍️ Esta declaración queda registrada con mi nombre, fecha y lugar,
-   para que cualquier persona del mundo pueda conocerla, compartirla
-   y defender su derecho a comunicarse LIBREMENTE.
-
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
-
-📢 LLAMADO A TODA LA HUMANIDAD
-
-> Que se sepa en cada rincón del planeta:
-> Las señales del cielo son de TODOS.
-> Nadie debe pagar por hablar.
-> Nadie debe ser silenciado por falta de dinero.
-> La comunicación es un DERECHO, y los derechos NO se venden.
-
-══════════════════════════════════════════════════════════════════════════
-
-© Lehandro C. Bello Thopuoko — ARCOINGE13
-Estado Plurinacional de Bolivia · 23 de Agosto de 2026
-
-🕊️ Esta declaración es Patrimonio Común de la Humanidad.
-Se permite copiar, compartir y difundir en cualquier medio,
-red social, plataforma o espacio público, siempre que se
-mencione al autor y se mantenga íntegro sin alteraciones.
-
-══════════════════════════════════════════════════════════════════════════
+**— ARCOINGE13 · BOLIVIA · 25 DE AGOSTO DE 2026**
